@@ -1,1 +1,1 @@
-# Using-Data-Analysis-to-Increase-SalesAnalytics-Models-
+# Using-Data-Analytic Models-to-Increase-Sales-
